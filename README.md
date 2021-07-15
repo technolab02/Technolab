@@ -1,2 +1,0 @@
-# technolab.github.io
- 
